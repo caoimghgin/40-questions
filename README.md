@@ -3,10 +3,9 @@ A questionnaire oriented toward what you made, learned, and confronted this year
 
 ## About
 
-A year is long enough to forget what actually happened. You remember the highlights and lowlights, but the texture disappears—the gradual shifts, the small decisions that compounded, the things you meant to do but quietly abandoned.
+A year is long enough to forget what actually happened. You remember the highlights and low points, but the texture fades—the gradual shifts, the small decisions that compounded, the things you meant to do but quietly set aside.
 
-Writing forces clarity that thinking alone doesn't. When you try to answer "what did I learn this year" in your head, you get a vague sense. When you have to write it down, you discover whether you actually know. These 40 questions can help the creator document what mattered and clarify what to focus on next.
-
+Writing creates a clarity that thinking alone doesn’t. Ask yourself “what did I learn this year?” in your head and you get a blur. Write it down, and you find out whether you actually know. These 40 questions are designed to help creators document what mattered—and clarify what deserves focus next.
 
 ## Background
 
